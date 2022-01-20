@@ -1,1 +1,0 @@
-Hello I am Daniel Farley. I am an IMED 120 student and am studying to be a designer for games.
